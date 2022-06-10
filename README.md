@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ke4k.github.io/rsschool-cv/
